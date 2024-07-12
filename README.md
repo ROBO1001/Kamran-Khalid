@@ -1,4 +1,4 @@
-# Miran-Ahmad/README.md
+# Kamran-Khalid/README.md
 
 💫 About Me:
 🔧 I’m currently concocting:
